@@ -1,0 +1,2 @@
+### Hi there 👋
+Junior Developer passionate about turning ideas into code. Proficient in [Programming Languages/Frameworks], eager to contribute and learn from experienced developers. Recent graduate in [Your Degree/Major] with hands-on experience in internships and personal projects. Seeking opportunities to collaborate and contribute meaningfully to innovative projects. Let's connect and code together! [Your Email] | LinkedIn: [Your LinkedIn Profile]. 💻✨
